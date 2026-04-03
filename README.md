@@ -1,3 +1,3 @@
-hey, i'm mohini 👾 · 20 · i build obsessively · open to cool asf opportunities
+hey, i'm mohini 👾 · 20 · i build obsessively · 
 
 [mohini.is-a.dev](https://mohini.is-a.dev)
